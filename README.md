@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Trannnnn. Call me Tran for short :D
+- 👋 Hi, I’m @SizC
 - 👀 I’m interested in cybersecurity, coding, anime, traveling
 - 🌱 I’m currently learning how to be an Ethical Hacker
 - 💞️ I’m looking to collaborate on anything related to Cybersecurity to broaden my knowledge
